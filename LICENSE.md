@@ -1,4 +1,4 @@
-# 
+# VIP dexscreener sniper bot إعدادات مسبقة لـ Mac OS | أصلي dexscreener sniper bot إعدادات مسبقة لـ PC Windows. مع حماية وقف الخسارة و التنفيذ السريع — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
